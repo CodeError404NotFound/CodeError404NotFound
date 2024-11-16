@@ -4,7 +4,7 @@
 - 💞️ I’m looking to collaborate on BIG project
 - 📫 How to reach me maybe I'll write later :/
 - 😄 Pronouns: IDK ^_^
-- ⚡ Fun fact: I'm laughing at all sorts of stuff.
+- ⚡ Fun fact: soon :3
 
 <!---
 CodeError404NotFound/CodeError404NotFound is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
